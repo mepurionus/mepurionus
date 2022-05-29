@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning how to create good apps, games and websites, as well as it's UIs.
 - 📫 How to reach me: <br>
 Telegram: @mepurionus <br>
-Discord: Mepuri#2093
+Discord: Mepuri#0461
